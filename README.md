@@ -15,4 +15,7 @@ As imagens remotas são fotos ilustrativas do Unsplash; não representam a Cafet
 
 ## Deploy
 
-Ainda não publicado. Publicar depois de confirmar que o conteúdo conceitual é adequado para compartilhar.
+Publicado em GitHub Pages: https://oluisvi.github.io/cafeteria-central-conceito/  
+Prancha: https://oluisvi.github.io/cafeteria-central-conceito/arte/
+
+Esta é uma prévia conceitual para validar direção e fluxo com a equipe. Não deve ser tratada como cardápio ou conteúdo comercial confirmado.
