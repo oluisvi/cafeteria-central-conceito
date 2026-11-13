@@ -1,4 +1,4 @@
-Oi! Obrigado por explicar como vocês organizam o cardápio. Pensei numa página simples para complementar o Instagram: ela reúne as informações da Cafeteria Central, mostra as categorias e deixa fácil encontrar o endereço; quando alguém quiser saber o que tem no dia, chama vocês direto no WhatsApp. Assim o Instagram continua com as novidades e a página ajuda quem quer consultar a casa com mais calma.
+Oi! Valeu por me contar um pouco de como vocês organizam as opções. Pensei numa página simples para complementar o Instagram: ela reúne as informações da Cafeteria Central, mostra as categorias e deixa fácil encontrar o endereço; quando alguém quiser saber o que tem no dia, chama vocês direto no WhatsApp. Assim o Instagram continua com as novidades e a página ajuda quem quer consultar a casa com mais calma.
 
 Preparei uma prévia conceitual para vocês verem no celular e no computador:
 
